@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Likhitha S Shenoi
-- I'm a Recently graduated electrical engineer
+-  I'm a Recently graduated electrical engineer
 - 🌱 I’m currently pursuing my M.Tech in Power electronics & Power System (PEPS)
 - 📫 How to reach me likhithasshenoi@gmail.com, 7902611708
 - 😄 Pronouns: she/her
